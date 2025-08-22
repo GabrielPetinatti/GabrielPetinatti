@@ -48,4 +48,6 @@
 ---
 
 ✨ *“A tecnologia move o mundo, mas a curiosidade é o que me move a aprender todos os dias.”* ✨
+🌎 “Com disciplina e curiosidade, qualquer desafio vira uma oportunidade de crescer.”
+🔥 “Aprender é a chave para transformar ideias em realidade.”
 
